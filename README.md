@@ -6,7 +6,7 @@ Everything is white. There are white curtains on the window, a white desk by the
 
 There are eight white pills on my palm, four could be lethal for a small female. I bring the whiskey close enough to smell the familiar aroma and, for a blink of an eye, I'm on a Manhattan rooftop, watching the sunrise with Tom. The seagulls cry and the cacophony of urban noise blends into a static hum as we sit in silence, holding hands in the middle of that magical scene. I still have the ridiculous sweater he was wearing that morning.
 
-There is a neurological reason scents evoke vivid memories. Once the journalist was wearing the same cheap cologne as the guy I was crushing on in high school. I gave a terrible interview, because all those embarrassing moments were resurrected in an unbearable detail. Every time I smell birch, I'm back home, at mom's house and the endless childhood summers spent wandering in the forest and floating toy boats in the stream. When I smell the hand sanitizer, I'm by Tom's bed again. Him too weak to stay awake and horribly gaunt. Me being crushed under an overwhelming weight.
+There is a neurological reason scents evoke vivid memories. Once a journalist was wearing the same cheap cologne as a guy I was crushing on in high school. I gave a terrible interview, because all those embarrassing moments were resurrected in an unbearable detail. Every time I smell birch, I'm back home, at mom's house and the endless childhood summers spent wandering in the forest and floating toy boats in the stream. When I smell the hand sanitizer, I'm by Tom's bed again. Him too weak to stay awake and horribly gaunt. Me being crushed under an overwhelming weight.
 
 There is a huge TV screen and I hate it.
 
