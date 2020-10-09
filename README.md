@@ -10,7 +10,7 @@ There is a neurological reason scents evoke vivid memories. Once the journalist 
 
 There is a huge TV screen and I hate it.
 
-The whiskey spills on the floor, the furniture and at he roof when I throw my glass at the screen. It breaks and the screen splinters, millions of tiny pieces of glass sparkle in the air and I stand amid the destruction. My face is stone, I'm out of tears. To be honest, I'm out of sadness too. In a world where nothing matters anymore, disdain is what I have left. They will apologize for the screen, a generous payment will be made and everything will be forgotten. I'll give the interviews as planned, on coke if I'm not inspiring enough otherwise. I'll go on the stage and tell them that anyone can be like me. Anyone can pursue the American Dream.
+The whiskey spills everywhere, on the floor, the furniture and the roof when I throw my glass at the screen. It breaks and the screen splinters, millions of tiny pieces of glass sparkle in the air and I stand amid the destruction. My face is stone, I'm out of tears. To be honest, I'm out of sadness too. In a world where nothing matters anymore, disdain is what I have left. They will apologize for the screen, a generous payment will be made and everything will be forgotten. I'll give the interviews as planned, on coke if I'm not inspiring enough otherwise. I'll go on the stage and tell them that anyone can be like me. Anyone can pursue the American Dream.
 
 I squeeze the pills in my hand.
 
